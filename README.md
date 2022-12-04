@@ -23,6 +23,6 @@ My first repository
 19. Chuku Modu as Gabriel Santiago
 20. Shelby Flannery as Hope Diyoza
 > Summary
-> Set 97 years after a nuclear war destroyed civilization, when a spaceship housing humanity's lone survivors sends 100 juvenile delinquents back to Earth, hoping to repopulate the planet. 
+> Set 97 years after a nuclear war destroyed civilization, when a spaceship housing humanity's lone survivors sends 100 juvenile delinquents back to Earth, hoping to repopulate the planet. The series is set 97 years after a devastating nuclear war wiped out almost all life on Earth. The only known survivors are the residents of twelve space stations in Earth's orbit prior to the war. The space stations banded together to form a single massive station named "The Ark", where about 2,400 people live. Resources are scarce and all crimes no matter their nature or severity are punishable by death ("floating") unless the perpetrator is under 18 years of age. After the Ark's life support systems are found to be critically failing, one hundred juvenile prisoners are declared "expendable" and sent to the surface in a last ditch attempt to determine if Earth is habitable again.
 > [The 100(The Hundred0](https://www.example.com)(https://www.rottentomatoes.com/tv/the_100)))
 
